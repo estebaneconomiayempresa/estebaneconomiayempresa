@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @estebaneconomiayempresa
-- 👀 I’m interested in economia y empresa
-- 🌱 I’m currently learning economia y empresa
-- 💞️ I’m looking to collaborate on economia y empresa
+- 👀 I’m interested in economia & empresa
+- 🌱 I’m currently learning economia & empresa
+- 💞️ I’m looking to collaborate on economia & empresa
 - 📫 How to reach me estebaneconomiayempresa@gmail.com
 - 😄 Pronouns: economia/empresa
 - ⚡ Fun fact: I hate economia & empresa
